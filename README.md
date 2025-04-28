@@ -1,5 +1,5 @@
 # Unblocked-Games-for-NSW-GOV
-All the best unblocked websites that are unblocked for Department of Education NSW that you can pay in class:
+All the best gaming websites that are unblocked for Department of Education NSW that you can play in class:
 
 DMCA:
 Has some really underrated games and some well known ones too
