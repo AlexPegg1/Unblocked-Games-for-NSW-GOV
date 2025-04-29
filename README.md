@@ -65,6 +65,14 @@ https://www.culinaryschools.org/kids-games/thorn-and-balloons/
 
 -----------------------------------------------------------------------------
 
+Eaglercraft:
+
+A website where you can play real Minecraft! You can join live servers and even join hypixel!
+
+https://sd592g.github.io/zj684od4lfg/
+
+-----------------------------------------------------------------------------
+
 List of the top games (And ripoffs):
 
 Angry Birds https://angrybirdsunblocked.github.io/
@@ -77,7 +85,7 @@ Fortnite https://1v1-lol-online.github.io/
 
 GTA https://unblocked-games.s3.amazonaws.com/stickman-gta-city.html
 
-Minecraft https://unblocked-games.s3.amazonaws.com/cube-worlds.html
+Minecraft https://sd592g.github.io/zj684od4lfg/
 
 Mario Kart https://lunakepio.github.io/Mario-Kart-3.js/#r=RP2N6
 
